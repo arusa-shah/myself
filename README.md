@@ -1,7 +1,5 @@
-HEY, MY NAME IS ARUSA.WANNA KNOW MY FULL NAME? 😉
-DUHHH! IT'S ARUSA PARVAIZ SHAH💮
-I CAME TO BANGLORE 2 YEARS AGO,DIDNT KNOW WHAT TO DO,HOW TO DO THINGS. NEVER LIVED WITHOUT PARENTS EVER. BUT YOU KNOW "YOU ALWAYS HAVE TO LEARN IN LIFE" AND THAT "LIFE IS ALL ABOUT LESSONS"🫂
-SO,I STARTED MY JOURNEY OF LEARNING FROM LIFE WHICH KINDA WENT IN A WRONG DIRECTION FIRST,HAD TO LEARN A LOT😿
-BUT GOT USED TO IT AND AT THIS POINT I DONT CARE😴
-I WANT TO COMPLETE MY DEGREE ND RUN BACK TO MOUNTAINS,BOOOMMMMMMMM🗻😆
-THATS ENOUGH,BOIIIIIII🤎🤯
+I am Arusa Shah.I am a Computer Science Graduate in Ramaiah Institute Of Technology😄
+As a passionate and results-driven Computer Science Engineer, I possess a strong foundation in key areas such as Data Structures and Algorithms (DSA), Java, Python, Object-Oriented Programming (OOP), and Operating Systems💮
+My technical expertise is complemented by my problem-solving mindset and commitment to continuous learning🦋
+Outside of coding, I am an avid traveler🗻, always eager to explore new cultures and perspectives, which enriches my creativity and adaptability. Additionally, I have a deep appreciation for sports, which instills in me the values of teamwork, discipline, and resilience🍃
+I am excited to leverage my skills and diverse interests to contribute to dynamic teams and tackle complex challenges in the tech industry🤎
